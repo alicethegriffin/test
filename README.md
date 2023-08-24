@@ -1,5 +1,2 @@
-zelenaya
-ddd
-ddd
-dddd
+rthtrh
 rthrthrthrthrthrth
